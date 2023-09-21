@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Architkak
 - 👀 I’m interested in trying out some new stuff
-- 🌱 I’m currently a second year btech student
+- 🌱 I’m currently a fourth year btech student
 - 📫 Reach me at architkak2002@gmail.com 
 
 <!---
